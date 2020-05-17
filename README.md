@@ -1,9 +1,10 @@
-我在领英的简历https://www.linkedin.com/in/shumin-tian-1a27625/?originalSubdomain=uk
-
-我在易教网的注册（通过证件审核）https://www.eduease.com/teacher_info-id-96348.htm
-
+**************************
+我在领英的简历https://www.linkedin.com/in/shumin-tian-1a27625/?originalSubdomain=uk  
+我在易教网的注册（通过证件审核）https://www.eduease.com/teacher_info-id-96348.htm   
 教育部网上学历认证编号：  120200040390 
 
+微信：wxid_rm6l4no56yd422  电子信箱：st1860@yahoo.com  Zoom 账号： st1860@gmail.com   Skype 账号: tenn1861
+**************************
 
 少儿英语和少儿编程
 
@@ -31,7 +32,7 @@
 
 笔者在英语学习和编程学习中都花费了几十年的时间，在两方面都走过许多弯路，也一直在思考和探索如何从编程里学英语。 感兴趣的读者可以和我做进一步的探讨。 我也可以为孩子提供一个从编程里学习英语的环境。
 
-剑桥编程英语田老师 
- 微信：wxid_rm6l4no56yd422  电子信箱：st1860@yahoo.com  Zoom 账号： st1860@gmail.com   Skype 账号: tenn1861
+
+微信：wxid_rm6l4no56yd422  电子信箱：st1860@yahoo.com  Zoom 账号： st1860@gmail.com   Skype 账号: tenn1861
 
 
