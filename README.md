@@ -1,5 +1,7 @@
 我在领英的简历https://www.linkedin.com/in/shumin-tian-1a27625/?originalSubdomain=uk
+
 我在易教网的注册（通过证件审核）https://www.eduease.com/teacher_info-id-96348.htm
+
 教育部网上学历认证编号：  120200040390 
 
 
