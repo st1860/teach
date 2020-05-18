@@ -1,7 +1,7 @@
 **************************
 我在领英的简历https://www.linkedin.com/in/shumin-tian-1a27625/?originalSubdomain=uk  
 我在易教网的注册（通过证件审核）https://www.eduease.com/teacher_info-id-96348.htm   
-教育部网上学历认证编号：  120200040390  1对1 或者 1对2 网络教学   
+教育部留学服务中心网上学历认证编号：  120200040390  1对1 或者 1对2 网络教学   
 微信：wxid_rm6l4no56yd422  电子信箱：st1860@yahoo.com  Zoom 账号： st1860@gmail.com   Skype 账号: tenn1861
 **************************
 
